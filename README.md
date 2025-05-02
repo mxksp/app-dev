@@ -3,7 +3,7 @@
 
 **Original Title**: 모범택시  
 **Director**: Park Joon-woo (Season 1), Lee-dan (Season 2)  
-**Release Year**: 2021  
+**Release Year**: 2021   
 **Genre**: Action, Crime, Thriller
 
 ---
